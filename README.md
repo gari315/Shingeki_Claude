@@ -1,1 +1,0 @@
-# Shingeki_Claude
